@@ -1,3 +1,1 @@
-# dotaMemesChess.github.i
-<a href ="vk.com">ув</a>
-
+# csgochess.github.io
